@@ -1,16 +1,27 @@
-## Hi there 👋
+  <p align="left"
 
-<!--
-**homelqnder/homelqnder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315qstgesmrlvatph7tuaobdvk6i&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="center"
+
+   
+ ٫٫  ‎‎i LOVE red dragon 1981, and supernatural. i am on s8ep1!  
+ 
+ <p align="center"
+   
+ ‎‎٫٫  i also like the boys, fight club, saw, house md, tsotl, good omens, dan vs, and mor!! 
+
+ <p align="center"
+   
+ ‎‎٫٫  i am a HUGE 1981 graham yume. nonsharing riako
+ 
+ <p align="center"
+   
+ ‎‎٫٫  i am anti-censorship, and profic!! i ADORE wincest. a lot. sorry!! they mean eveything to me..
+
+ <p align="center"
+   
+ ‎‎٫٫  i love sourcemates! mor sys info [here!](https://dash.pluralkit.me/profile/s/wzpfjr?tab=members&view=list)
