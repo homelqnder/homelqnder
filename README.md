@@ -25,3 +25,8 @@
  <p align="center"
    
  ‎‎٫٫  i love sourcemates! mor sys info [here!](https://dash.pluralkit.me/profile/s/wzpfjr?tab=members&view=list)
+
+ <p align="center"
+   
+ ‎‎٫٫  <a href="http://users3.smartgb.com/g/g.php?a=s&i=g36-40880-6b">my guestbook talkto me plz</a>
+
